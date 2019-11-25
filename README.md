@@ -1,1 +1,1 @@
-# Coures
+# Courses
